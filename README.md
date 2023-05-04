@@ -2,5 +2,5 @@
 Email. tjdwns1865@naver.com
 
 ### Channel
-[RESUME](https://utopian-pixie-91e.notion.site/4f50e9b955654f8cbbc2a6817c2b9846) | [BLOG](https://jun-codinghistory.tistory.com/)
+[RESUME](https://docs.google.com/document/d/1t1PKiLB1SJayGbfmY2AJnrqcn7dqb2qVv_MdrU2Ia28/edit?usp=sharing) | [BLOG](https://jun-codinghistory.tistory.com/)
 
