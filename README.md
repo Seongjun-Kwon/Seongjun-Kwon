@@ -2,5 +2,5 @@
 Email. tjdwns1865@naver.com
 
 ### Channel
-[RESUME](https://docs.google.com/document/d/1t1PKiLB1SJayGbfmY2AJnrqcn7dqb2qVv_MdrU2Ia28/edit?usp=sharing) | [BLOG](https://jun-codinghistory.tistory.com/)
+[RESUME](https://drive.google.com/file/d/1Y0dKOK3OHIuc1AmWgI70HlavQ8T95xUx/view?usp=sharing) | [BLOG](https://jun-codinghistory.tistory.com/)
 
